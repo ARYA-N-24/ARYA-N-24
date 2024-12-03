@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning JAVA
 - 💞️ I’m looking to collaborate on any simple projects
 - 📫 How to reach me through mail---2arya4.n@gmail.com
-- 😄 Pronouns: HE/HI,
+- 😄 Pronouns: HE/HIM,
 - ⚡ Fun fact: I'm not funny
 
 <!---
